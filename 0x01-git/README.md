@@ -1,1 +1,1 @@
-hello world i'm here to make an impact
+we impact lives
